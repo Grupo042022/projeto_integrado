@@ -1,4 +1,5 @@
-# <img src="https://i.gifer.com/origin/00/00c330154483d2b2e3162e95ce7be2ba_w200.gif" alt="Image" height="40" width="40" > <center>  𝐎 𝐉𝐨𝐠𝐨 𝐝𝐨 𝐏𝐫𝐢𝐦𝐞𝐢𝐫𝐨 𝐓𝐫𝐢𝐦𝐞𝐬𝐭𝐫𝐞 </center> <img src="https://i.gifer.com/origin/00/00c330154483d2b2e3162e95ce7be2ba_w200.gif" alt="Image" height="40" width="40" >
+
+# <img src="https://i.gifer.com/origin/00/00c330154483d2b2e3162e95ce7be2ba_w200.gif" alt="Image" height="40" width="40" > 𝗢 𝗣𝗿𝗶𝗺𝗲𝗶𝗿𝗼 𝗝𝗼𝗴𝗼 𝗱𝗼 𝗧𝗿𝗶𝗺𝗲𝘀𝘁𝗿𝗲  <img src="https://i.gifer.com/origin/00/00c330154483d2b2e3162e95ce7be2ba_w200.gif" alt="Image" height="40" width="40" >
 
  <img src="https://www.educacaoetransformacao.com.br/wp-content/uploads/2018/02/historia.png" align=”center” >
  
