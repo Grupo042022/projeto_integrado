@@ -1,9 +1,12 @@
 
-# <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/477b5fd1-8e7d-4278-9377-aa6aadc63969/ddw94rp-13144137-65d3-49a7-8843-cb3524b8e325.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzQ3N2I1ZmQxLThlN2QtNDI3OC05Mzc3LWFhNmFhZGM2Mzk2OVwvZGR3OTRycC0xMzE0NDEzNy02NWQzLTQ5YTctODg0My1jYjM1MjRiOGUzMjUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.kGcuzrgO5rFfsG-JhffM_NpHwlgxUx4pFc4zpNgOY2c" alt="Image" height="50" width="50" > 𝘾𝙤𝙣𝙩𝙧𝙖-𝘼𝙩𝙖𝙦𝙪𝙚<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/477b5fd1-8e7d-4278-9377-aa6aadc63969/ddw94rp-13144137-65d3-49a7-8843-cb3524b8e325.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzQ3N2I1ZmQxLThlN2QtNDI3OC05Mzc3LWFhNmFhZGM2Mzk2OVwvZGR3OTRycC0xMzE0NDEzNy02NWQzLTQ5YTctODg0My1jYjM1MjRiOGUzMjUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.kGcuzrgO5rFfsG-JhffM_NpHwlgxUx4pFc4zpNgOY2c" alt="Image" height="50" width="50" >
+<p align='center'> 𝘾𝙤𝙣𝙩𝙧𝙖-𝘼𝙩𝙖𝙦𝙪𝙚 <p align='center'>
 
- <img src="https://user-images.githubusercontent.com/99884683/167651699-ccc3147d-ff67-4d1e-a6a6-e0f909e50d0d.jpg" align=”center” alt="Image" height="180" width="300">
+<p align='center'> <img src="https://user-images.githubusercontent.com/101808123/186999113-896e08e3-3ef9-46c9-80d9-a22a2552d64f.gif" align=”center” alt="Image" height="180" width="300"> <p align='center'>
  
-𝐄𝐦 𝐣𝐮𝐧𝐡𝐨 𝐝𝐞 𝟏𝟗𝟖𝟎, 𝐎́𝐬𝐜𝐚𝐫 𝐂𝐚𝐫𝐯𝐚𝐥𝐡𝐨 𝐫𝐞𝐜𝐞𝐛𝐞 𝐮𝐦𝐚 𝐜𝐚𝐫𝐭𝐚 𝐞𝐦 𝐬𝐮𝐚 𝐜𝐚𝐬𝐚 𝐬𝐞𝐧𝐝𝐨 𝐜𝐡𝐚𝐦𝐚𝐝𝐨 𝐩𝐚𝐫𝐚 𝐨 𝐞𝐱𝐞́𝐫𝐜𝐢𝐭𝐨 𝐩𝐚𝐫𝐚 𝐫𝐞𝐜𝐞𝐛𝐞𝐫 𝐭𝐫𝐞𝐢𝐧𝐚𝐦𝐞𝐧𝐭𝐨𝐬, 𝐩𝐨𝐢𝐬 𝐡𝐚́ 𝐮𝐦𝐚 𝐩𝐫𝐞𝐯𝐢𝐬𝐚̃𝐨 𝐝𝐞 𝐠𝐮𝐞𝐫𝐫𝐚, 𝐩𝐫𝐞𝐭𝐞𝐧𝐝𝐞𝐦 𝐢𝐧𝐯𝐚𝐝𝐢𝐫 𝐨 𝐁𝐫𝐚𝐬𝐢𝐥. 𝐄𝐦 𝟏𝟓 𝐝𝐞 𝐀𝐠𝐨𝐬𝐭𝐨, 𝐎́𝐬𝐜𝐚𝐫 𝐬𝐚𝐢 𝐝𝐞 𝐬𝐮𝐚 𝐜𝐚𝐬𝐚 𝐢𝐦𝐚𝐠𝐢𝐧𝐚𝐧𝐝𝐨 𝐬𝐞𝐫 𝐚 𝐮́𝐥𝐭𝐢𝐦𝐚 𝐯𝐞𝐳 𝐚 𝐯𝐞̂-𝐥𝐚 𝐧𝐚𝐪𝐮𝐞𝐥𝐞 𝐞𝐬𝐭𝐚𝐝𝐨, 𝐡𝐚𝐯𝐢𝐚 𝐜𝐨𝐦𝐞𝐜̧𝐚𝐝𝐨 𝐚 𝐠𝐮𝐞𝐫𝐫𝐚. 𝐎 𝐁𝐫𝐚𝐬𝐢𝐥 𝐞𝐬𝐭𝐚𝐯𝐚 𝐬𝐞𝐧𝐝𝐨 𝐢𝐧𝐯𝐚𝐝𝐢𝐝𝐨 𝐧𝐚 𝐟𝐫𝐨𝐧𝐭𝐞𝐢𝐫𝐚 𝐜𝐨𝐦 𝐂𝐨𝐥𝐨̂𝐦𝐛𝐢𝐚 𝐞 𝐏𝐞𝐫𝐮. 𝐎𝐬 𝐄𝐔𝐀 𝐧𝐚̃𝐨 𝐞𝐬𝐭𝐫𝐮𝐭𝐮𝐫𝐚𝐫𝐚𝐦 𝐮𝐦𝐚 𝐛𝐨𝐚 𝐞𝐬𝐭𝐫𝐚𝐭𝐞́𝐠𝐢𝐚 𝐞 𝐩𝐨𝐫 𝐭𝐞𝐫 𝐪𝐮𝐞 𝐭𝐞𝐫 𝐢𝐧𝐯𝐚𝐝𝐢𝐝𝐨 𝐚 𝐂𝐨𝐥𝐨̂𝐦𝐛𝐢𝐚 𝐞𝐬𝐭𝐚̃𝐨 𝐟𝐫𝐚𝐜𝐨𝐬, 𝐚𝐬𝐬𝐢𝐦 𝐞𝐧𝐭𝐫𝐚𝐧𝐝𝐨 𝐧𝐚 𝐚́𝐫𝐞𝐚 𝐦𝐚𝐢𝐬 𝐝𝐞𝐧𝐬𝐚 𝐝𝐚 𝐟𝐥𝐨𝐫𝐞𝐬𝐭𝐚 𝐧𝐚 𝐭𝐞𝐧𝐭𝐚𝐭𝐢𝐯𝐚 𝐝𝐞 𝐩𝐞𝐠𝐚́-𝐥𝐚 𝐩𝐚𝐫𝐚 𝐞𝐥𝐞𝐬.
+𝐸𝓂 𝒿𝓊𝓃𝒽𝑜 𝒹𝑒 1980, 𝒪𝓈𝒸𝒶𝓇 𝒞𝒶𝓇𝓋𝒶𝓁𝒽𝑜 𝓇𝑒𝒸𝑒𝒷𝑒 𝓊𝓂𝒶 𝒸𝒶𝓇𝓉𝒶 𝑒𝓂 𝓈𝓊𝒶 𝒸𝒶𝓈𝒶 𝓈𝑒𝓃𝒹𝑜 𝒸𝒽𝒶𝓂𝒶𝒹𝑜 𝓅𝒶𝓇𝒶 𝑜 
+𝑒𝓍𝑒𝓇𝒸𝒾𝓉𝑜 𝓅𝒶𝓇𝒶 𝓇𝑒𝒸𝑒𝒷𝑒𝓇 𝓉𝓇𝑒𝒾𝓃𝒶𝓂𝑒𝓃𝓉𝑜𝓈, 𝓅𝑜𝒾𝓈 𝒽𝒶 𝓊𝓂𝒶 𝓅𝓇𝑒𝓋𝒾𝓈𝒶𝑜 𝒹𝑒 𝑔𝓊𝑒𝓇𝓇𝒶, 𝓅𝓇𝑒𝓉𝑒𝓃𝒹𝑒𝓂 𝒾𝓃𝓋𝒶𝒹𝒾𝓇 𝑜 𝐵𝓇𝒶𝓈𝒾𝓁. 
+𝐸𝓂 15 𝒹𝑒 𝒜𝑔𝑜𝓈𝓉𝑜, 𝒪𝓈𝒸𝒶𝓇 𝓈𝒶𝒾 𝒹𝑒 𝓈𝓊𝒶 𝒸𝒶𝓈𝒶 𝒾𝓂𝒶𝑔𝒾𝓃𝒶𝓃𝒹𝑜 𝓈𝑒𝓇 𝒶 𝓊𝓁𝓉𝒾𝓂𝒶 𝓋𝑒𝓏 𝒶 𝓋𝑒-𝓁𝒶 𝓃𝒶𝓆𝓊𝑒𝓁𝑒 𝑒𝓈𝓉𝒶𝒹𝑜, 
+𝒽𝒶𝓋𝒾𝒶 𝒸𝑜𝓂𝑒ç𝒶𝒹𝑜 𝒶 𝑔𝓊𝑒𝓇𝓇𝒶. 𝒪 𝐵𝓇𝒶𝓈𝒾𝓁 𝑒𝓈𝓉𝒶𝓋𝒶 𝓈𝑒𝓃𝒹𝑜 𝒾𝓃𝓋𝒶𝒹𝒾𝒹𝑜 𝓃𝒶 𝒻𝓇𝑜𝓃𝓉𝑒𝒾𝓇𝒶 𝒸𝑜𝓂 𝒞𝑜𝓁𝑜𝓂𝒷𝒾𝒶 𝑒 𝒫𝑒𝓇𝓊. 
  
 
 
